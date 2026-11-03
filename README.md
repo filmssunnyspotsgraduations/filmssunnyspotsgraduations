@@ -3,7 +3,7 @@
 ###
 
 <p data-importer="text" align="left">uhh some things to note about me:</p>
-<p data-importer="text" align="left">i have really bad social anxiety umm i would mostly not interact with you first</p>
+<p data-importer="text" align="left">i have really bad social anxiety umm i would mostly not interact with you first (unless we're already friends ok)</p>
 <p data-importer="text" align="left">if you want to be my friend then feel free to ask idm</p>
 <p data-importer="text" align="left">i can be quite dry when talking no i am not mean im just too lazy to express feelings through texts</p>
 
